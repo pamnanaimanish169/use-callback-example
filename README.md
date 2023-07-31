@@ -1,3 +1,3 @@
 # Overview
 
-https://techholding.slack.com/docs/T5PQHJY7R/F05L5TJ9DEU
+https://docs.google.com/document/d/1kJMAa9PN1R50QAMig-wo-rRxho3h3whTMZ9mYxA8mpM/edit
